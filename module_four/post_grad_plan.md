@@ -20,11 +20,13 @@ How much time will you spend on each? When will you do each thing?
 
 **Action Step #1:** Establish a shareable calendar (like Google Calendar) and block out time on your calendar *now* to adhere to these goals. Be prepared to show this calendar to your instructors during your portfolio review.
 
+Link to calendar goes here
+
 **Action Step #2:** Backwards plan for your big goal. What is your cut-off for ending the job search? When do you want to receive and sign an offer by?
 
+* Cutoff is 30 days post grad for signing an offer
 
 **Action Step #3:** Based on what you outlined above, create monthly, weekly, and daily goals to reach in order to reach your big goal:
-
 
 Keep in mind:
 
